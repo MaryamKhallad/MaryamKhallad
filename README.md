@@ -62,5 +62,5 @@ Leading technical initiatives, organizing events, and supporting student develop
 
 ## Contact
 
-LinkedIn: [Maryam Khallad](https://linkedin.com/in/maryam_khallad)
+LinkedIn: [Maryam Khallad](https://linkedin.com/in/maryam-khallad)
 
