@@ -1,4 +1,4 @@
-# Maryam Khallad
+# Maryam Ashraf Khallad
 
 🎓 Junior Software Engineering Student  
 👩🏻‍💻 Android Developer | Problem Solving | UI/UX  
